@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently work in tikanga.in web marketing company<br>👯 I’m looking for job in Front end web developer/designing<br>🌱 💬 Ask me about<br> I also completed my 5th months Internship from <br>Gurgaon in BitspanIndia .
+🔭 I’m currently work in tikanga.in web marketing company<br>👯 I’m looking for job in Front end web developer/designing<br>🌱 
 
 
 ## 🌐 Socials:
